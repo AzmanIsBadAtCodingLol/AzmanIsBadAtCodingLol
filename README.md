@@ -1,4 +1,4 @@
-hello yes it is me Azman i am bad at coding css ez i hate life
+evil prankster sent from planet glorb 
 
 <!---
 AzmanIsBadAtCodingLol/AzmanIsBadAtCodingLol is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
